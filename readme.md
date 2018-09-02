@@ -1,3 +1,1 @@
-튜토리얼 작성중 .. 
-
-첫번째 튜토리얼 이번주 토요일까지 업로드 할 예정
+<img src="https://www.dropbox.com/s/dh9zxxxiieaq9ed/Screenshot%202018-09-02%2016.39.48.png?raw=1">
